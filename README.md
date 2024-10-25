@@ -15,3 +15,5 @@ https://www.youtube.com/@olddognewlinux
 https://github.com/OldDogNewLinux?tab=repositories
 
 https://buymeacoffee.com/olddognewlinux
+
+![FINAL-LM22-MacLM22](https://github.com/user-attachments/assets/62bb5a99-8bb4-4f21-990c-a8497f5cccc1)
